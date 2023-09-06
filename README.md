@@ -4,8 +4,18 @@ Munnar is so perfect for a bike ride and solo trip . What makes the spot special
 
 ********************
 
-###### Mandatory Activities 
+#### Mandatory Activities to do at my vacation spot
 1. Camping
 2. Trekking
 3. Bike ride 
+
+- Food Items
+- Mutton Dum biryani
+- Chicken Curry
+- Ice Cream
+     - with gulab jamun
+     
+
+
+
 
