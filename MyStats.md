@@ -19,6 +19,6 @@ This table provides an overview of sports and its advantages and how many hours 
 >
 >\-*Charles Darwin*
 <br>
->" science is the systematic classification of experience." 
+>"science is the systematic classification of experience." 
 >
 >\-*George Henry*
