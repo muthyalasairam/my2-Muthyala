@@ -9,12 +9,12 @@ Munnar is so perfect for a bike ride and solo trip . What makes the spot special
 2. Trekking
 3. Bike ride 
 
-- Food Items
+Food dishes
 - Mutton Dum biryani
 - Chicken Curry
 - Ice Cream
      - with gulab jamun
-     
+
 
 
 
