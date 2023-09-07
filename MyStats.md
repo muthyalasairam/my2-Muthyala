@@ -13,3 +13,12 @@ This table provides an overview of sports and its advantages and how many hours 
 |Basketball| It improves cardiovascular fitness and strengthens muscles| 8-10 hrs|
 |Badminton| Improves muscle strength, weight management and flexibility| 8-10 hrs|
 
+---
+#### PITHY QUOTES
+>"Gravity explains the motions of the planet but cannot explain who sets the planets motion."
+>
+>\-*Charles Darwin*
+<br>
+>" science is the systematic classification of experience." 
+>
+>\-*George Henry*
